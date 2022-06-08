@@ -1,2 +1,2 @@
 # Yogi-Enterprises-
-Manufactures of rapid Fast Dyes and Pigment Paste 
+Manufactures of Rapid Fast Dyes and Pigment Paste 
